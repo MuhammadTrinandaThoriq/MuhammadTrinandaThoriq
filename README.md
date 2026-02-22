@@ -29,4 +29,5 @@
 ## 📫 Connect with me
 
 [LinkedIn](https://www.linkedin.com/in/muhammad-trinanda-thoriq-843265324/)
+
 [Instagram](http://instagram.com/muhammad.thoriq___/)
